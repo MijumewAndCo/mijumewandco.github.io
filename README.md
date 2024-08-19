@@ -1,1 +1,0 @@
-# mijumewandco.github.io
